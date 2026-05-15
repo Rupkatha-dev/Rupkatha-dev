@@ -20,6 +20,6 @@ Somewhere between small-town roots and big ambitions, I’m just learning, creat
 * Learning languages
 * Exploring ideas that make life interesting
 
-Connect with me on LinkedIn: `https://www.linkedin.com/in/rupkatha-roy/`
+Connect with me on LinkedIn: [LinkedIn](https://www.linkedin.com/in/rupkatha-roy/)
 
 > “Still figuring things out — and honestly, that’s the fun part.”
